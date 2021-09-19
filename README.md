@@ -27,7 +27,11 @@ https://imgur.com/a/6wrp2kn.gif
 
 
 
-<blockquote class="imgur-embed-pub" lang="en" data-id="a/6wrp2kn"  ><a href="//imgur.com/a/6wrp2kn">Flixster Basi App</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+
+https://user-images.githubusercontent.com/45011866/133917538-683dd2a0-4cc5-42b7-86bc-d3582a053fb2.mp4
+
+
+
 
 
 
